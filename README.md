@@ -1,3 +1,3 @@
-![mama](https://files.catbox.moe/pn54fy.jpeg)
+![mama](https://files.catbox.moe/hcm9bz.png)
 
-haiii it me rie ^_^ i love madeline hatter from eah she kyute lik me... follow gitub okie? and send wacky stuff on strawpage.. i like looking at da stuff （≧∇≦）
+haiii it me rie ^_^ i cannot be asked making thisreadme look fancy or anything so just like.. follow the github and sign my ata. ilove you guys
