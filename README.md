@@ -1,6 +1,6 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=fast&duration=3000&pause=900&color=ffffff&center=true&vCenter=true&width=435&lines=Please+follow+my+github;I'm+the+coolest+person+around)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&letterSpacing=fast&duration=3000&pause=900&color=ffffff&center=true&vCenter=true&width=435&lines=im+so+in+love+with+lucia+and+jason;they're+so+flipping+adorable)](https://git.io/typing-svg)
 
-![fujorie](https://files.catbox.moe/du0tw0.jpeg)
+![fujorie](https://files.catbox.moe/rq5cn6.jpeg)
 
 haiii it me rie ^_^ i cannot be asked making thisreadme look fancy or anything so just like.. follow my github and sign my ata pls ilove you guys
 
